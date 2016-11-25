@@ -1,0 +1,1 @@
+This is a mirror of Steve Wiggins’ [Sects and Violence in the Ancient World Podcast](https://steveawiggins.com/podcasts/). Posted here with the [permission](https://steveawiggins.com/2009/11/20/it-was-a-small-world-after-all/#comment-18901) of Dr Wiggins.
